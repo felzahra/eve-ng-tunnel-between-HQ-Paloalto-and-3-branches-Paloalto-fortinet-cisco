@@ -1,5 +1,12 @@
 ![task](https://github.com/user-attachments/assets/4260c2a9-a0a6-48cf-b0bf-1b585f4e2b61)
 
+![image](https://github.com/user-attachments/assets/09d0bf80-9da7-4dbe-a3b8-e4d01830bf8e)
+
+https://youtu.be/StvZU8fG75Q?list=PL8yj0vXkratqHE14MZqufu81gttojwJJc
+https://youtu.be/zuQvCnbgHvQ?list=PL8yj0vXkratqHE14MZqufu81gttojwJJc
+https://youtu.be/LhBgNG-moSs?list=PL8yj0vXkratqHE14MZqufu81gttojwJJc
+https://youtu.be/XTDTkFjWUVc?list=PL8yj0vXkratqHE14MZqufu81gttojwJJc
+
 
 ![image](https://github.com/user-attachments/assets/4222d450-a4de-4b7f-bdd6-67694d86355a)
 ![image](https://github.com/user-attachments/assets/46921f8f-ed4c-4448-b070-c6b12edeb2f1)
